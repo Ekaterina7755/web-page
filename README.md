@@ -24,4 +24,5 @@
 Изображения веб-страницы  
 ![2025-01-16_22-36-09](https://github.com/user-attachments/assets/8ee757e3-8a1f-4c4c-9eb4-b2c9bdc96c5e)
 ![image](https://github.com/user-attachments/assets/cac4f1b1-f989-4140-b93e-e5f57180cc6d)
-![2025-01-16_22-35-23](https://github.com/user-attachments/assets/b9b43f74-5216-4716-9d6b-eefc78bdcb0e)
+![image](https://github.com/user-attachments/assets/baae2eae-ebaf-4f12-8e81-a0e2bcf40cdb)
+
